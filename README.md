@@ -1,0 +1,2 @@
+# Imagem-Ajustável-ou-Responsiva
+ 
